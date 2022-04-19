@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @leonardo1530lw
+- MEU EMAIL PARA CONTATO É leonardokaiquecandidodasilva@gmail.com
+- - 👀 estou interassado em aprender e compartilhar meus conhecimentos e projetosn e programar novas linguagens
+- 🌱 atualmente estou aprendendo robotica e ja tenho curso de assistente administrativo
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
