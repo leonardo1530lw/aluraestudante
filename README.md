@@ -2,5 +2,4 @@
 - MEU EMAIL PARA CONTATO É leonardokaiquecandidodasilva@gmail.com
 - - 👀 estou interassado em aprender e compartilhar meus conhecimentos e projetosn e programar novas linguagens
 - 🌱 atualmente estou aprendendo robotica e ja tenho curso de assistente administrativo
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ Estou desposto a colaborar com os projetos e com as demais coisas que virão
